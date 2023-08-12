@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Python**
 
-- 📫 How to reach me **imt**
+- 📫 How to reach me **imteyazm745@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/imteyazm745/overlay/1635529597383/single-media-viewer/?profileId=ACoAACmY1i8BLJ0yvjpDxcpQMtSH-lc3u5O4vAY](https://www.linkedin.com/in/imteyazm745/overlay/1635529597383/single-media-viewer/?profileId=ACoAACmY1i8BLJ0yvjpDxcpQMtSH-lc3u5O4vAY)
 
